@@ -3,17 +3,20 @@
 - 🌱 I’m currently learning How to code
 - 💞️ I’m looking to collaborate on Allam.A
 - 📫 How to reach me ***private***.
-
-
-
-
-
-
-
-
-
-
-
+no
+no
+no
+no
+no
+no
+no
+no
+no
+no
+no
+no
+no
+NOOOOOOOOOOOOOOOOO
 Ok, I'll tell you: no. 153, Vale rd, Bel Air, Maryland, USA, North America, Earth
 
 <!---
